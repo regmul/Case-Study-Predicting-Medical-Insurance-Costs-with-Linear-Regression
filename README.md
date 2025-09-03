@@ -106,6 +106,9 @@ Run all cells step by step.
 
 **By:**
 Regina Mulei
-Nairobi, 
+
+Nairobi, Kenya
+
 Kenyareginangina@gmail.com,
+
 LinkedIn- https://www.linkedin.com/in/regina-mulei-892942132/
